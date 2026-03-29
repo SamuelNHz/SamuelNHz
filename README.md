@@ -168,7 +168,7 @@ Centro Universitário de Brasília (CEUB)
 
 📧 **samuel.xr17@gmail.com**  
 📱 **(61) 99588-0846**
-
+https://www.linkedin.com/in/samuel-nhz-10476b3b8 
 ---
 
 ## 🚀 Disponível para oportunidades
